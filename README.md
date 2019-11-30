@@ -1,1 +1,0 @@
-# Przykladowy-Projek
